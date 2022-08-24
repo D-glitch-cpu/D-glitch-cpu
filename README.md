@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @D-glitch-cpu
-- 👀 I’m interested in programming and proofreading
+- 👀 I’m interested in programming and UX Design
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on projects that can help boost my programming knowledge and skills
 - 📫 How to reach me; email deannaandrew8@gmail.com or whatsapp-+2349020568711
